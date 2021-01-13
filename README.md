@@ -1,2 +1,1 @@
-# My-Recipies
-Chocolate Cake
+This recipe is a quick, easy, and delicious Chocolate Cake! 
